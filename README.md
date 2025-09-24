@@ -16,8 +16,8 @@ Check out [Chatty-Reborn](https://github.com/Crazy1111j/Chatty-Reborn)—my main
 
 ## 🎨 About Me
 - I love **anime** and programming!
-- I believe in giving people **freedom**—in code, creativity, and life.
-- Always learning, always tinkering.
+- I believe in giving people **freedom** in life to escape cencorship, and imprisonment.
+- Im always learning something new
 
 ---
 
